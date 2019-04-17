@@ -3,7 +3,7 @@
 
 Click on the skin name to download.
 
-# [# pixel atmosphere](https://www.dropbox.com/s/p69tnam4lqe5py9/%23%20pixel%20atmosphere.osk?dl=0)
+# [# pixel atmosphere](https://waa.ai/o5dU)
 ![](https://osu.ppy.sh/ss/13053194)
 
 # [angelsim seouless](https://urwomb.s-ul.eu/muaCmiwV)

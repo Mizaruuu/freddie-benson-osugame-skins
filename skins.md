@@ -3,6 +3,9 @@
 
 Click on the skin name to download.
 
+# [# the new skin](https://masterchefcanada.s-ul.eu/Y5N3gZxW)
+![](# i don't have a screenshot yet Shut Up)
+
 # [# pixel atmosphere](https://waa.ai/o5dU)
 ![](https://osu.ppy.sh/ss/13053194)
 

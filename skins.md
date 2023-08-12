@@ -3,7 +3,7 @@
 
 Click on the skin name to download.
 
-# [- freddie+fami+aireuvv](https://masterchefcanada.s-ul.eu/Y5N3gZxW)
+# [- freddie+fami+aireuvv](https://fred.s-ul.eu/VLvszTqx)
 ![](https://osu.ppy.sh/ss/14732977/6ed0)
 
 # [ pixel atmosphere](https://waa.ai/o5dU)
